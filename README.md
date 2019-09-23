@@ -1,1 +1,3 @@
-# 2019-polyu-sd3861-lecture2
+# Hannah is ugly
+- Christy is pretty
+# Hi
